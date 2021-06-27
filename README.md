@@ -1,0 +1,2 @@
+# sigma-lemniscate
+∑∞ -- Unbounded possibility
